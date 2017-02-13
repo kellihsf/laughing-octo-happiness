@@ -1,2 +1,3 @@
 # laughing-octo-happiness
-repo for testing
+
+I've created this repo for testing purposed. It's quite fancy, no?
