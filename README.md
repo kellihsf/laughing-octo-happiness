@@ -13,4 +13,4 @@ wafflebot, are you back from vacation?
 making a change to test this thing. writing lots of stuff so it seems like a novel. it's fun. seriously, writing a bunch of words with no story or purpose, it's kinda nice. you should try it. 
 testing this stuff. still writing a long novel, it's pretty great. there's no beginning or end, mostly just middle stuff.
 
-why is the spacing so weird on this? 
+why is the spacing so weird on this? yesh. 
