@@ -22,6 +22,4 @@ new day, new test! ok one more. let's test this one again. why doesn't that logi
 
 this feels like a short novel. that's ok though. that didn't save.. where did the tab thing go I saved? why oh why do I keep testing this? WHY
 
-test 4,325. AGAIN. pls stahp. workin 9-5 do do do dooo do. 
-keep on keepin on. 
-this
+
